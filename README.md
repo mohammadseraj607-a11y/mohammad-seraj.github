@@ -1,4 +1,5 @@
-![Screenshot_20260120_212749_Gallery](https://github.com/user-attachments/assets/71ecfdc4-2e2f-4f5d-85d9-370fc3f125c3)
+![Uploading Screenshot_20260120_212749_Gallery.jpg…]()
+
 # 👋 Mohammad Seraj
 
 🎓 Bachelor of Computer Science Student (Expected 2028)  
