@@ -1,5 +1,6 @@
 ![Uploading Screenshot_20260120_212749_Gallery.jpg…]()
 
+
 # 👋 Mohammad Seraj
 
 🎓 Bachelor of Computer Science Student (Expected 2028)  
