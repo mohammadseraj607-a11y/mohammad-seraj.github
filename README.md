@@ -1,6 +1,7 @@
-![Uploading Screenshot_20260120_212749_Gallery.jpg…]()
 
 
+
+![Screenshot_20260120_212749_Gallery (1)](https://github.com/user-attachments/assets/ab1fb2bc-53c8-482d-b6e2-3b3a4d0aea94)
 
 # 👋 Mohammad Seraj
 
